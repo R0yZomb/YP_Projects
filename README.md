@@ -1,4 +1,4 @@
-### Hi, i'm Data Scientis 
+### Hi, i'm Data Sciens Analytic
 
 ### Nabatnikov Denis / Набатников Денис
 
